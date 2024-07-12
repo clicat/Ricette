@@ -9,7 +9,7 @@
 - 1 vanillina
 
 #### Ingredienti Pan di Spagna, alternative:
-- 5(4|8) uova
+- 5(4|8) uova (teglia da 20 cm di diametro per 5 uova; 18 cm per 4 uova; 24 cm per 8 uova)
 - 200(150|250) g zucchero
 - 100(100|150)g farina
 - 100g fecola di patate
@@ -28,7 +28,7 @@
 9. Continuare ad aggiungere alternando il resto degli albumi e della farina fino a ottenere un composto omogeneo.
 10. Versare il composto nella teglia, livellandolo bene.
 11. Cuocere nel forno preriscaldato per 30-40 minuti. Non aprire il forno durante i primi 20 minuti di cottura.
-12. Se si desidera fare un rotolo di pan di spagna, versare il composto in una teglia rivestita di carta da forno e cuocere per 18-20 minuti a 170°C senza ventilazione.
+12. Se si desidera fare un rotolo di pan di spagna, versare il composto in una teglia rivestita di carta da forno (30x40 cm) e cuocere per 18-20 minuti a 170°C senza ventilazione.
 13. Una volta sfornata, lasciar riposare la torta nella teglia per 5 minuti, quindi rimuovere l'anello e la carta da forno. Lasciar raffreddare completamente su una griglia.
 
 #### Crema:
@@ -37,6 +37,7 @@
 - 2 cucchiai di zucchero
 - 1 albume montato a neve
 - Cioccolato nero a scaglie
+- Panna montata (a scelta)
 
 #### Montaggio:
 - cioccolato bianco a scaglie (1 tavoletta)
@@ -58,7 +59,7 @@
 - 1 packet of vanilla
 
 #### Sponge Cake Ingredients, alternative:
-- 5(4|8) eggs
+- 5(4|8) eggs (20 cm diameter pan for 5 eggs; 18 cm for 4 eggs; 24 cm for 8 eggs)
 - 200(150|250) g sugar
 - 100(100|150)g flour
 - 100g potato starch
@@ -77,7 +78,7 @@
 9. Continue adding the remaining egg whites and flour alternately until a smooth mixture is obtained.
 10. Pour the mixture into the pan, leveling it well.
 11. Bake in the preheated oven for 30-40 minutes. Do not open the oven during the first 20 minutes of baking.
-12. If making a sponge roll, pour the mixture into a pan lined with baking paper and bake for 18-20 minutes at 170°C without a fan.
+12. If making a sponge roll, pour the mixture into a pan lined with baking paper (30x40 cm) and bake for 18-20 minutes at 170°C without a fan.
 13. Once baked, let the cake rest in the pan for 5 minutes, then remove the ring and baking paper. Cool completely on a wire rack.
 
 #### Cream:
@@ -86,6 +87,7 @@
 - 2 tablespoons of sugar
 - 1 egg white, beaten until stiff
 - Dark chocolate flakes
+- Whipped cream (optional)
 
 #### Assembly:
 - White chocolate flakes (1 bar)
@@ -107,7 +109,7 @@
 - 1 пакетче ванилия
 
 #### Съставки за Блата, алтернатива:
-- 5(4|8) яйца
+- 5(4|8) яйца (форма с диаметър 20 см за 5 яйца; 18 см за 4 яйца; 24 см за 8 яйца)
 - 200(150|250) г захар
 - 100(100|150)г брашно
 - 100г картофено нишесте
@@ -126,7 +128,7 @@
 9. Продължете да добавяте останалите белтъци и брашно, редувайки ги, докато получите хомогенна смес.
 10. Изсипете сместа в подготвената форма, като я изравните добре.
 11. Печете в предварително загрята фурна за 30-40 минути. Не отваряйте фурната през първите 20 минути на печене.
-12. Ако правите руло, изсипете сместа в тава, покрита с хартия за печене, и печете за 18-20 минути на 170°C без вентилатор.
+12. Ако правите руло, изсипете сместа в тава, покрита с хартия за печене (30x40 см), и печете за 18-20 минути на 170°C без вентилатор.
 13. След като извадите блата от фурната, оставете го да почине 5 минути във формата, след това махнете ринга и хартията за печене. Оставете блата да изстине напълно върху решетка.
 
 #### Крем:
@@ -135,6 +137,7 @@
 - 2 супени лъжици захар
 - 1 белтък, разбит на сняг
 - Настърган черен шоколад
+- Бита сметана (по избор)
 
 #### Сглобяване:
 - Настърган бял шоколад (1 блокче)
