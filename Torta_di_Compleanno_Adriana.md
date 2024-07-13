@@ -15,21 +15,23 @@
 - 100g fecola di patate
 - 1 noce burro
 - 1 vanillina
+- 100g di granella di mandorle
 
 #### Procedimento:
 1. Preparare gli ingredienti e la teglia. Accendere il forno a 170°C senza ventilazione per preriscaldarlo.
-2. Imburrare il fondo e i lati della teglia in cui verrà cotto il pan di spagna o rivestirla con carta da forno.
-3. Setacciare la farina due o tre volte per incorporare aria.
-4. Separare i tuorli dagli albumi.
-5. Montare i tuorli con 2/3 dello zucchero fino a triplicarne il volume e ottenere una crema densa.
-6. In un'altra ciotola, montare gli albumi a neve, aggiungendo gradualmente il restante zucchero.
-7. Aggiungere 1/3 degli albumi ai tuorli e mescolare delicatamente con una spatola.
-8. Aggiungere 1/3 della farina, mescolando dal basso verso l'alto con cura.
-9. Continuare ad aggiungere alternando il resto degli albumi e della farina fino a ottenere un composto omogeneo.
-10. Versare il composto nella teglia, livellandolo bene.
-11. Cuocere nel forno preriscaldato per 30-40 minuti. Non aprire il forno durante i primi 20 minuti di cottura.
-12. Se si desidera fare un rotolo di pan di spagna, versare il composto in una teglia rivestita di carta da forno (30x40 cm) e cuocere per 18-20 minuti a 170°C senza ventilazione.
-13. Una volta sfornata, lasciar riposare la torta nella teglia per 5 minuti, quindi rimuovere l'anello e la carta da forno. Lasciar raffreddare completamente su una griglia.
+2. Imburrare il fondo e i lati della teglia in cui verrà cotto il pan di spagna.
+3. Aggiungere 100g di granella di mandorle sul fondo.
+4. Setacciare la farina due o tre volte per incorporare aria.
+5. Separare i tuorli dagli albumi.
+6. Montare i tuorli con 2/3 dello zucchero fino a triplicarne il volume e ottenere una crema densa.
+7. In un'altra ciotola, montare gli albumi a neve, aggiungendo gradualmente il restante zucchero.
+8. Aggiungere 1/3 degli albumi ai tuorli e mescolare delicatamente con una spatola.
+9. Aggiungere 1/3 della farina, mescolando dal basso verso l'alto con cura.
+10. Continuare ad aggiungere alternando il resto degli albumi e della farina fino a ottenere un composto omogeneo.
+11. Versare il composto nella teglia, livellandolo bene.
+12. Cuocere nel forno preriscaldato per 30-40 minuti. Non aprire il forno durante i primi 20 minuti di cottura.
+13. Se si desidera fare un rotolo di pan di spagna, versare il composto in una teglia rivestita di carta da forno (30x40 cm) e cuocere per 18-20 minuti a 170°C senza ventilazione.
+14. Una volta sfornata, lasciar riposare la torta nella teglia per 5 minuti, quindi rimuovere l'anello e la carta da forno. Lasciar raffreddare completamente su una griglia.
 
 #### Crema:
 - 250g mascarpone
@@ -65,21 +67,23 @@
 - 100g potato starch
 - 1 knob of butter
 - 1 packet of vanilla
+- 100g almond granules
 
 #### Procedure:
 1. Prepare the ingredients and the form. Turn on your oven at 170°C without the fan to heat up.
 2. Grease the bottom and sides of the mold in which you will bake the sponge cake or put baking paper on the bottom and sides.
-3. Sift the flour two or three times to incorporate air.
-4. Separate the yolks from the whites.
-5. Beat the yolks with 2/3 of the sugar until their volume has tripled and a thick cream is obtained.
-6. In another bowl, beat the egg whites until stiff, adding the remaining sugar gradually.
-7. Add 1/3 of the egg whites to the yolks and mix carefully with a spatula.
-8. Add 1/3 of the flour, mixing from bottom to top carefully.
-9. Continue adding the remaining egg whites and flour alternately until a smooth mixture is obtained.
-10. Pour the mixture into the pan, leveling it well.
-11. Bake in the preheated oven for 30-40 minutes. Do not open the oven during the first 20 minutes of baking.
-12. If making a sponge roll, pour the mixture into a pan lined with baking paper (30x40 cm) and bake for 18-20 minutes at 170°C without a fan.
-13. Once baked, let the cake rest in the pan for 5 minutes, then remove the ring and baking paper. Cool completely on a wire rack.
+3. Add 100g of almond granules on the bottom.
+4. Sift the flour two or three times to incorporate air.
+5. Separate the yolks from the whites.
+6. Beat the yolks with 2/3 of the sugar until their volume has tripled and a thick cream is obtained.
+7. In another bowl, beat the egg whites until stiff, adding the remaining sugar gradually.
+8. Add 1/3 of the egg whites to the yolks and mix carefully with a spatula.
+9. Add 1/3 of the flour, mixing from bottom to top carefully.
+10. Continue adding the remaining egg whites and flour alternately until a smooth mixture is obtained.
+11. Pour the mixture into the pan, leveling it well.
+12. Bake in the preheated oven for 30-40 minutes. Do not open the oven during the first 20 minutes of baking.
+13. If making a sponge roll, pour the mixture into a pan lined with baking paper (30x40 cm) and bake for 18-20 minutes at 170°C without a fan.
+14. Once baked, let the cake rest in the pan for 5 minutes, then remove the ring and baking paper. Cool completely on a wire rack.
 
 #### Cream:
 - 250g mascarpone
@@ -115,21 +119,23 @@
 - 100г картофено нишесте
 - 1 бучка масло
 - 1 пакетче ванилия
+- 100г филирани бадеми
 
 #### Процедура:
 1. Подгответе продуктите и формата. Включете фурната на 170°C без вентилатор за да загрее.
 2. Намажете дъното и стените на формата, в която ще печете блата, или сложете хартия за печене на дъното и стените.
-3. Пресейте брашното два или три пъти за да влезе въздух.
-4. Отделете жълтъците от белтъците.
-5. Разбийте жълтъците с 2/3 от захарта докато обемът им се утрои и получите гъст крем.
-6. В друга купа разбийте белтъците на сняг, като постепенно добавяте останалата захар.
-7. Добавете 1/3 от белтъците към жълтъците и внимателно разбъркайте с шпатула.
-8. Добавете 1/3 от брашното, като разбърквате внимателно отдолу нагоре.
-9. Продължете да добавяте останалите белтъци и брашно, редувайки ги, докато получите хомогенна смес.
-10. Изсипете сместа в подготвената форма, като я изравните добре.
-11. Печете в предварително загрята фурна за 30-40 минути. Не отваряйте фурната през първите 20 минути на печене.
-12. Ако правите руло, изсипете сместа в тава, покрита с хартия за печене (30x40 см), и печете за 18-20 минути на 170°C без вентилатор.
-13. След като извадите блата от фурната, оставете го да почине 5 минути във формата, след това махнете ринга и хартията за печене. Оставете блата да изстине напълно върху решетка.
+3. Добавете 100г филирани бадеми на дъното.
+4. Пресейте брашното два или три пъти за да влезе въздух.
+5. Отделете жълтъците от белтъците.
+6. Разбийте жълтъците с 2/3 от захарта докато обемът им се утрои и получите гъст крем.
+7. В друга купа разбийте белтъците на сняг, като постепенно добавяте останалата захар.
+8. Добавете 1/3 от белтъците към жълтъците и внимателно разбъркайте с шпатула.
+9. Добавете 1/3 от брашното, като разбърквате внимателно отдолу нагоре.
+10. Продължете да добавяте останалите белтъци и брашно, редувайки ги, докато получите хомогенна смес.
+11. Изсипете сместа в подготвената форма, като я изравните добре.
+12. Печете в предварително загрята фурна за 30-40 минути. Не отваряйте фурната през първите 20 минути на печене.
+13. Ако правите руло, изсипете сместа в тава, покрита с хартия за печене (30x40 см), и печете за 18-20 минути на 170°C без вентилатор.
+14. След като извадите блата от фурната, оставете го да почине 5 минути във формата, след това махнете ринга и хартията за печене. Оставете блата да изстине напълно върху решетка.
 
 #### Крем:
 - 250г маскарпоне
